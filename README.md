@@ -1,1 +1,1 @@
-# 50Days50Projects its look like small but there is too many thing what u need ! just look around a bit. 
+ its look like small but there is too many thing what u need ! just look around a bit. 
